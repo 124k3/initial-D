@@ -19,6 +19,7 @@ At Initial D, we are committed to preserving the legacy of street racing culture
 
 ### Details
 
+
 Read about the characters, The races, the car models, and everything that there to is.
 ---
 

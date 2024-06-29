@@ -17,26 +17,9 @@ At Initial D, we are committed to preserving the legacy of street racing culture
 
 ## Explore the World of Initial D
 
-### Manga
+### Details
 
-Read the thrilling manga series that started it all. Follow Takumi and his friends as they navigate the challenging world of street racing.
-
-### Anime
-
-Watch the animated adaptation of Initial D, featuring intense racing scenes and unforgettable characters.
-
-### Merchandise
-
-Discover a wide range of official Initial D merchandise, from clothing to memorabilia, available for purchase.
-
-### Community
-
-Join our community of passionate fans to discuss your favorite moments, theories, and more.
-
-## Stay Connected
-
-Have questions or feedback? Contact our support team at [support@initiald.com](mailto:support@initiald.com).
-
+Read about the characters, The races, the car models, and everything that there to is.
 ---
 
 Thank you for visiting the official Initial D website. Get ready to experience the thrill of street racing like never before!

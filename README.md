@@ -15,12 +15,7 @@ At Initial D, we are committed to preserving the legacy of street racing culture
 - **Community Engagement:** Connect with fellow fans through forums, events, and social media platforms.
 - **News and Updates:** Stay updated on the latest announcements regarding the franchise, including new releases and collaborations.
 
-## Explore the World of Initial D
 
-### Details
-
-
-Read about the characters, The races, the car models, and everything that there to is.
 ---
 
 Thank you for visiting the official Initial D website. Get ready to experience the thrill of street racing like never before!
